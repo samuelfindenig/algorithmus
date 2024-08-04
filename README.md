@@ -1,1 +1,1 @@
-**All of the random algorithmus I wants code and my use again**
+**All of the random algorithmus I want's coded and my use again**
